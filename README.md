@@ -1,5 +1,5 @@
 ### Hi there 👋
-orlosziming at outlook dot com
+feel free to contact me 📮 orlosziming at outlook dot com
 </br>
 </br>
 [![OrlosZiming's github stats](https://github-readme-stats.vercel.app/api?username=mcxiaoxiao)](https://github.com/mcxiaoxiao)
