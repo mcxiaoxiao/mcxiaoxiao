@@ -1,4 +1,4 @@
-### Hi there 👋  Feel free to contact me 📮 orlosziming at outlook dot com
+### Hi there (｡･∀･)ﾉﾞ嗨  Feel free to contact me 📮 orlosziming at outlook dot com
  <!--
 [![OrlosZiming's github stats](https://github-readme-stats.vercel.app/api?username=mcxiaoxiao)](https://github.com/mcxiaoxiao)
 
